@@ -6,4 +6,4 @@
 - 💬 Ask me about financial statement
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I have studied traditional Chinese painting for nine years, starting from kindergarten.
--->
+
