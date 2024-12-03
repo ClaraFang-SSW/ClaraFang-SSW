@@ -6,4 +6,5 @@
 - 💬 Ask me about Self-guided travel plan, financial statement
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I have studied traditional Chinese painting for nine years, starting from kindergarten & I've been keeping a handwritten journal for over 8 years.
+  
 [![ClaraFang's github stats](https://github-readme-stats.vercel.app/api?username=ClaraFang-SSW&theme=dark)](https://github.com/ClaraFang-SSW/github-readme-stats)
