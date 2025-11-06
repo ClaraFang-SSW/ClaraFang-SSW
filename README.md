@@ -10,7 +10,7 @@
 
    ◦  🧑‍💻:[SSW people profile](https://www.ssw.com.au/people/clara-fang/)
  
-   ◦  🌐:[Instagram](https://www.instagram.com/huizhefang?igsh=ZGF3ZG9jMjczNnho&utm_source=qr)
+   ◦  🌐:[@clarafang](https://www.instagram.com/huizhefang?igsh=ZGF3ZG9jMjczNnho&utm_source=qr)
  
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I have studied traditional Chinese painting for nine years, starting from kindergarten & I've been keeping a handwritten journal for over 8 years.
