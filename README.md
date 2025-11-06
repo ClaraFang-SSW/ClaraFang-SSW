@@ -13,6 +13,6 @@
    ◦  📸:[@clarafang](https://www.instagram.com/huizhefang?igsh=ZGF3ZG9jMjczNnho&utm_source=qr)
  
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I have studied traditional Chinese painting for nine years, starting from kindergarten & I've been keeping a handwritten journal for over 8 years.
+- ⚡ Fun fact: I've been to Northern Europe five times (still haven't found Santa Claus, though!)🤣
   
 [![ClaraFang's github stats](https://github-readme-stats.vercel.app/api?username=ClaraFang-SSW&theme=dark)](https://github.com/ClaraFang-SSW/github-readme-stats)
