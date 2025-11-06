@@ -13,6 +13,6 @@
    ◦  📸:[@clarafang](https://www.instagram.com/huizhefang?igsh=ZGF3ZG9jMjczNnho&utm_source=qr)
  
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I've been to Northern Europe five times (still haven't found Santa Claus, though!)🤣
+- ⚡ Fun fact: 5 trips to the Nordics ❄️... still no sight of Santa. 🤔🎅
   
 [![ClaraFang's github stats](https://github-readme-stats.vercel.app/api?username=ClaraFang-SSW&theme=dark)](https://github.com/ClaraFang-SSW/github-readme-stats)
